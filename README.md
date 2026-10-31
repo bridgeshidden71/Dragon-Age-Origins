@@ -220,4 +220,4 @@ Dragon Age: Origins is available as a full free version, providing all features 
 Embark on your journey today! Download Dragon Age: Origins free and step into a world of adventure and choice.
 
 ---
-**Last updated:** 2026-10-30 20:31:07 UTC
+**Last updated:** 2026-10-31 00:31:57 UTC
